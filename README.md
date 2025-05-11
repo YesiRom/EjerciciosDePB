@@ -1,0 +1,2 @@
+Romero Yesica
+![Diagram 2025-05-11 18-03-15](https://github.com/user-attachments/assets/6db85e17-2185-4641-9ee1-b46fc64adc89)
